@@ -1,2 +1,3 @@
 Once upon a time there was a woodcutter and he was very poor but he was very honest. He used to work very hard to earn the money for his family. 
 One day he went to th jungle to cut some wood. There he was cutting a tree near the lake, his axe fell from his hands into the lake.
+Then he was trying to think of a way to get his axe out of the lake. Just before the sunset the goddess of the lake arose from the bottom of the lake.
