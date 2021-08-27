@@ -1,1 +1,2 @@
-Once upon a time there was a woodcutter and he was very poor but he was very honest. He used to work very hard to earn the money for his family.
+Once upon a time there was a woodcutter and he was very poor but he was very honest. He used to work very hard to earn the money for his family. 
+One day he went to th jungle to cut some wood. There he was cutting a tree near the lake, his axe fell from his hands into the lake.
